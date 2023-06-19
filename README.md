@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CecyStefanova
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in travelling abroad.
+- 🌱 I’m currently learning very serious stuff
+- 💞️ I’m looking to collaborate on making people happy.
 - 📫 How to reach me  - by e-mail
 
 <!---
